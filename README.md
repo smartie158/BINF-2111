@@ -1,2 +1,5 @@
 # BINF-2111
-My name is Sofia Martinez
+Sofia Martinez
+Fall 2024
+Interdisciplinary Studies Major with a Film and Media Production Concentration
+Senior
